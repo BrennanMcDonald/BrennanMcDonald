@@ -2,4 +2,4 @@
 
 What I'm currently working on:
 
-¯\_(ツ)_/¯
+¯\\_(ツ)_/¯
